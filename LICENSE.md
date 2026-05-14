@@ -1,4 +1,4 @@
-# 
+# advanced new coin sniper bot | multi-chain-support + token-launch-monitoring is the best new coin sniper bot, featuring multi-chain-support and token-launch-monitoring. Fast,
 
 
 
